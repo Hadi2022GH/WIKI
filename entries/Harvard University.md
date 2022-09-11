@@ -1,0 +1,6 @@
+#Harvard University
+
+
+***Harvard University*** is a private Ivy League research university in Cambridge, Massachusetts. Founded in 1636 as Harvard College and named for its first benefactor, the Puritan clergyman John Harvard, it is the oldest institution of higher learning in the United States and regarded as one of the most prestigious in the world.
+
+The university is composed of ten academic faculties plus the Harvard Radcliffe Institute. Arts and Sciences offers study in a wide range of academic disciplines for undergraduates and for graduates, while the other faculties offer only graduate degrees, mostly professional. Harvard has three main campuses:[7] the 209-acre (85 ha) Cambridge campus centered on Harvard Yard; an adjoining campus immediately across the Charles River in the Allston neighborhood of Boston; and the medical campus in Boston's Longwood Medical Area.[8] Harvard's endowment is valued at $53.2 billion, making it the largest of any academic institution.[3] Endowment income helps enable the undergraduate college to admit students regardless of financial need and provide generous financial aid with no loans.[9] The Harvard Library is the world's largest academic library system, comprising 79 individual libraries holding about 20.4 million items.
